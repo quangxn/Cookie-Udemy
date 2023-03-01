@@ -12,4 +12,5 @@
 3 . Link nhận Support : [***Here***](https://www.facebook.com/photo?fbid=3330306193873101&set=a.1387699194800487)
 
 Note : Mình sẽ không Share Trick Reg tài khoản ra bên ngoài , nên các bạn có hỏi mình sẽ không rep đâu ạ . Cảm ơn , chúc mọi người một ngày làm việc hiệu quả và hạnh phúc !
+![image](https://user-images.githubusercontent.com/24869201/222061550-a96569f2-9172-4952-97ce-5da56d861222.png)
 
