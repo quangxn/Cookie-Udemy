@@ -9,7 +9,7 @@
 
 2 . Cookie Editor dùng để Import Code : [***Here***](https://chrome.google.com/webstore/detail/cookie-editor/hlkenndednhfkekhgcdicdfddnkalmdm)
 
-\3. Link nhận Support : [***Here](https://www.facebook.com/photo?fbid=3330306193873101&set=a.1387699194800487)*** 
+3 . Link nhận Support : [***Here***](https://www.facebook.com/photo?fbid=3330306193873101&set=a.1387699194800487)
 
 Note : Mình sẽ không Share Trick Reg tài khoản ra bên ngoài , nên các bạn có hỏi mình sẽ không rep đâu ạ . Cảm ơn , chúc mọi người một ngày làm việc hiệu quả và hạnh phúc !
 
